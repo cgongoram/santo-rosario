@@ -21,7 +21,7 @@ Amén.
 
 Misterios gozosos del santo rosario
 
-Primer misterio - La encarnación del Hijo de Dios - 00:00:53
+Primer misterio GOZOSO - La encarnación del Hijo de Dios - 00:00:53
 
 The First Joyful Mystery
 THE ANNUNCIATION
@@ -39,7 +39,7 @@ Spiritual Fruit: Humility
 
 Y el Ángel le dijo no temas María porque has hallado gracia delante de Dios concebirás en tu seno y darás a luz un hijo y le pondrás por nombre Jesús. Dijo entonces María: he aquí la esclava del señor, hágase en mí según tu palabra. Oh madre, con esa palabra fiel nos has hecho hermanos de Dios y herederos de su gloria, bendita seas. En el seno de María santísima había para Jesús: amor, pureza, adoración, compañia, respeto, cuidado y cuando sale del sagrario que viene a mi miserable pecho nada de eso halló.
 
-Segundo misterio. La visitación de nuestra señora a su prima Santa Isabel - 00:06:05
+Segundo misterio GOZOSO - La visitación de nuestra señora a su prima Santa Isabel - 00:06:05
 
 The Second Joyful Mystery
 THE VISITATION
@@ -61,7 +61,7 @@ María, madre de gracia, madre de piedad y misericordia, defiendenos del enemigo
 
 Oh Jesús mío, perdona nuestros pecados, líbranos del fuego del infierno, lleva al cielo a todas las almas, especialmente a las más necesitadas de vuestra misericordia.
 
-Tercer misterio, el nacimiento del Hijo de Dios en el portal de belén - 00:11:11
+Tercer misterio GOZOSO - el nacimiento del Hijo de Dios en el portal de belén - 00:11:11
 
 The Third Joyful Mystery
 THE NATIVITY
@@ -83,7 +83,7 @@ María, madre de gracia, madre de piedad y misericordia, defiendenos del enemigo
 
 Oh Jesús mío, perdona nuestros pecados, líbranos del fuego del infierno, lleva al cielo a todas las almas, especialmente a las más necesitadas de vuestra misericordia.
 
-Cuarto misterio, la presentación del niño Jesús en el templo y la purificación de su santísima madre - 00:16:16
+Cuarto misterio GOZOSO - la presentación del niño Jesús en el templo y la purificación de su santísima madre - 00:16:16
 
 The Fourth Joyful Mystery
 THE PRESENTATION
@@ -101,7 +101,7 @@ Spiritual Fruit: Purity of mind and body
 
 Y cumplidos los días de la purificación, llevaron a Jesús a Jerusalén para presentarlo al señor y para presentar como ofrenda un par de tórtolas o dos pichones según lo mandado por la ley del señor. Maria lleva en sus brazos a un tierno niño, flor y fruto de su pureza virginal para ofrecerlo al señor como víctima de sacrificio y es que ese hijo de María es también el hijo del altísimo que debe ser inmolado para la redención de nuestros pecados. Ofrezcamonos también nosotros a Dios en rendido homenaje a su divina majestad, más hagámoslo por medio de Jesucristo y esté en brazos de su madre como el día de la presentación.
 
-Quinto misterio, el niño Jesús perdido y hallado en el templo - 00:21:18
+Quinto misterio GOZOSO - el niño Jesús perdido y hallado en el templo - 00:21:18
 
 The Fifth Joyful Mystery
 THE FINDING OF JESUS IN THE TEMPLE
@@ -120,7 +120,7 @@ Spiritual Fruit: Obedience
 Cuando tuvo 12 años subieron a la fiesta como era costumbre pasados aquellos días al regresar el niño Jesús se quedó en Jerusalén sin que lo advirtieran sus padres y ocurrió que al cabo de tres días lo encontraron en el templo sentado en medio de los doctores, escuchándolos y preguntándoles. El señor envía o permite a veces abandonos y oscuridades miedos y cansancios que lo ocultan a las miradas del alma para mantenernos en humildad hacernos adquirir méritos, consolidar nuestra virtud, formarnos en la paciencia y conformidad con la voluntad divina o para que lo busquemos con afán aunque uno posea todos los bienes del mundo si ha perdido a Dios todas las cosas de la tierra se le han convertido en humo y vanidad.
 
 
-primer misterio DOLOROSO la oraciÃ³n del seÃ±or en el huerto 00:00:55
+Primer misterio DOLOROSO - la oración del señor en el huerto - 00:00:55
 
 The First Sorrowful Mystery
 THE AGONY IN THE GARDEN
@@ -139,7 +139,7 @@ Spiritual Fruit: God's Will be done
 esos puestos de rodillas oraba diciendo padre si quieres aparta de mÃ­ este cÃ¡liz pero no se haga mi voluntad sino la tuya y entrando en agonÃ­a oraba con mÃ¡s intensidad y le vino un sudor como de gotas de sangre que caÃ­an hasta el suelo muchos siguen a jesÃºs hasta el partir del pan mÃ¡s pocos hasta beber el cÃ¡liz de la pasiÃ³n muchos son ran sus milagros mÃ¡s pocos siguen el vituperio de la cruz demanda adiÃ³s sentimiento dolor y confusiÃ³n porque el seÃ±or va a la pasiÃ³n por nuestros pecados
 
 
-segundo misterio doloroso la flagelaciÃ³n del seÃ±or 00:06:13
+Segundo misterio DOLOROSO - la flagelación del señor - 00:06:13
 
 The Second Sorrowful Mystery
 THE SCOURGING AT THE PILLAR
@@ -155,10 +155,10 @@ The prophecy of Isaiah is fulfilled: "He was wounded for our iniquities, He was 
 Father, by the merits of Jesus in this painful scourging, have mercy on us and on the whole world.
 Spiritual Fruit: Mortification of the senses
 
-y lazos se dirigiÃ³ de nuevo a los judÃ­os y les dijo yo no encuentro en Ã©l ninguna culpa hay entre vosotros la costumbre que os suelte uno por la pascua querÃ©is pues que os suelte al rey de los judÃ­os entonces gritaron de nuevo a este no agarra mÃ¡s barrabÃ¡s era un ladrÃ³n entonces pilato tomÃ³ a jesÃºs y mandÃ³ que lo azotaban recta culo el mÃ¡s corriendo que el mundo vio ni jamÃ¡s ver a los hombres azotando al hijo de dios a la vista de su eterno padre y de todos los Ã¡ngeles del cielo sin que haya nadie que se lo estorbe y eso es mÃ­o por los mÃ©ritos de vuestra cruel flagelaciÃ³n aser florecer en todas las almas la pureza y la mortificaciÃ³n
+Pilatos se dirigió de nuevo a los judíos y les dijo yo no encuentro en él ninguna culpa hay entre vosotros la costumbre que os suelte uno por la pascua, ¿queréis pues que os suelte al rey de los judíos? Entonces gritaron de nuevo: a este no, a Barrabás. Barrabás era un ladrón, entonces Pilato tomó a Jesús y mandó que lo azotaran. Que espectaculo, el más horrendo que el mundo vio ni jamás vera: los hombres azotando al Hijo de Dios a la vista de su eterno padre y de todos los ángeles del cielo, sin que haya nadie que se lo estorbe. Oh Jesus mío, por los méritos de vuestra cruel flagelación, haced florecer en todas las almas la pureza y la mortificación.
 
 
-tercer misterio la coronaciÃ³n de espinas 00:11:32
+Tercer misterio DOLOROSO - la coronación de espinas - 00:11:32
 
 The Third Sorrowful Mystery
 THE CROWNING WITH THORNS
@@ -174,9 +174,9 @@ Our Blessed Lord submitted to this terrible humiliation to make reparation for o
 Father, by the merits of this painful humiliation, have mercy on us and on the whole world.
 Spiritual Fruit: Reign of Christ in our heart
 
-los soldados del procurador llevaron a  jesÃºs al pretorio y reunieron en torno a Ã©l a toda la corte lo desnudaron le pusieron una tÃºnica roja y trenzaron una corona de espinas se la pusieron en la cabeza y en su mano derecha una caÃ±a se arrodillaban ante Ã©l y se burlaban diciendo salve rey de los judÃ­os nos cuenta santateresa entrando un dÃ­a en el oratorio de una imagen que habÃ­an traÃ­do allÃ­ de cristo muy llagado y tan devota que viÃ©ndola me turbÃ³ de ver lo que el seÃ±or paso por nosotros fue tanto lo que sentÃ­ de lo mal que habÃ­a agradecido a aquellas llagas que el corazÃ³n me parece se me partÃ­a ponte tÃº mismo en el lugar del que padece y mira lo que sentirÃ­as si en una parte tan sensible como la cabeza tÃ©ngase muchas y muy agudas espinas que penetrasen hasta los huesos
+Los soldados del procurador llevaron a  Jesús al pretorio y reunieron en torno a él a toda la corte lo desnudaron le pusieron una túnica roja y trenzaron una corona de espinas, se la pusieron en la cabeza y en su mano derecha una caña. Se arrodillaban ante él y se burlaban diciendo: salve rey de los judíos. Nos cuenta Santa Teresa: entrando un día en el oratorio de una imagen que habían traído allá de Cristo muy llagado y tan devota que viéndola me turbé de ver lo que el señor paso por nosotros. Fué tanto lo que sentí de lo mal que había agradecido a aquellas llagas que el corazón me parece se me partía. Ponte tú mismo en el lugar del que padece y mira lo que sentirías si en una parte tan sensible como la cabeza te ingasen muchas y muy agudas espinas que penetrasen hasta los huesos.
 
-cuarto misterio jesÃºs con la cruz a cuestas 00:16:59
+Cuarto misterio DOLOROSO - Jesús con la cruz a cuestas - 00:16:59
 
 The Fourth Sorrowful Mystery
 THE CARRYING OF THE CROSS
@@ -192,9 +192,9 @@ Jesus speaks to weeping women: "Weep not for Me, but for yourselves and your chi
 Father, by the merits of this painful journey to Calvary, have mercy on us and on the whole world.
 Spiritual Fruit: Patient bearing of trials
 
-pilato entonces se lo entregÃ³ para que fuera crucificado tomaron pues a jesÃºs y Ã©l con la cruz a cuestas saliÃ³ hacia el lugar llamado de la calavera en hebreo gÃ³lgota cristo sufriÃ³ sus penas solo mÃ¡s para llevar la cruz que hizo que un cirineo le ayudara no basta la cruz de cristo si tÃº no llevas resignadamente la tuya no hay que mirar de dÃ³nde nos vienen las cruces aunque parezca que nos vienen de nuestros familiares superiores o de mÃ¡s personas es dios quien las permite para probar nuestro amor
+Pilato entonces se lo entregó para que fuera crucificado. Tomaron pues a Jesús y el con la cruz a cuestas salió hacia el lugar llamado de la calavera en hebreo gólgota. Cristo sufrió sus penas solo. más para llevar la cruz se hizo que un cirineo le ayudara. No basta la cruz de Cristo, si tú no llevas resignadamente la tuya. No hay que mirar de dónde nos vienen las cruces aunque parezca que nos vienen de nuestros familiares superiores o demás personas, es Dios quien las permite para probar nuestro amor.
 
-quinto misterio en la crucifixiÃ³n y muerte del seÃ±or 00:21:46
+Quinto misterio DOLOROSO - la crucifixión y muerte del señor - 00:21:46
 
 The Fifth Sorrowful Mystery
 THE CRUCIFIXION
@@ -210,31 +210,31 @@ The side of Jesus is pierced with a lance. His body is taken down and placed in 
 Father, by the merits of the crucifixion and death of Jesus, have mercy on us and on the whole world.
 Spiritual Fruit: Pardoning of Injuries
 
-lo crucificaron y con Ã©l a otros dos uno a cada lado y en el centro jesÃºs estaban junto a la cruz de jesÃºs su madre y la hermana de su madre marÃ­a de cleofÃ¡s y marÃ­a magdalena jesÃºs viendo a su madre dijo mujer he ahÃ­ a tu hijo despuÃ©s ti sea el discÃ­pulo he ahÃ­ a tu madre e inclinando la cabeza entregÃ³ el espÃ­ritu que flecha este amor salen de esas llagas para herir a los mÃ¡s endurecidos corazones que llamas para abrazar los corazones mÃ¡s helados que cadenas parten de ese costado abierto para atar los corazones mÃ¡s rebeldes si no se conmueve al ver a la madre de dios que contempla a su hijo muriendo estÃ¡n corriendo suplicy madre de piedad madre mÃ­a haz que arda mi corazÃ³n en el amor de tu hijo y asÃ­ pueda consolar tu inmenso dolor
+Lo crucificaron y con él a otros dos, uno a cada lado y en el centro Jesús estaban junto a la cruz de Jesús su madre y la hermana de su madre María de Cleofás y María Magdalena. Jesús, viendo a su madre dijo: mujer he ahí a tu hijo, después dijo al discípulo: he ahí a tu madre e inclinando la cabeza entregó el espíritu. Que flecha este amor salen de esas llagas para herir a los más endurecidos corazones, que llamas para abrazar los corazones más helados, que cadenas parten de ese costado abierto para atar los corazones más rebeldes. Si no se conmueve al ver a la madre de Dios que contempla a su hijo muriendo. Tán horrendo suplicio, madre de piedad, madre mía, haz que arda mi corazón en el amor de tu hijo y así pueda consolar tu inmenso dolor.
 
-por las intenciones del sumo pontÃ­fice 00:31:22
+Por las intenciones del sumo pontífice 00:31:22
 
-para ganar las indulgencias concedidas al santo rosario 
-padre nuestro que estÃ¡s en el cielo santificado sea tu nombre..
-dios te salve marÃ­a llena eres de gracia el ...
+Para ganar las indulgencias concedidas al santo rosario 
+Padre nuestro que estás en el cielo santificado sea tu nombre..
+Dios te salve María llena eres de gracia el ...
 
-por las benditas almas del purgatorio
-padre nuestro que estÃ¡s en el cielo santificado sea tu nombre..
-dios te salve marÃ­a llena eres de gracia el ...
+Por las benditas almas del purgatorio
+Padre nuestro que estás en el cielo santificado sea tu nombre..
+Dios te salve María llena eres de gracia el ...
 
-por nuestras intenciones 
-padre nuestro que estÃ¡s en el cielo santificado sea tu nombre..
-dios te salve marÃ­a llena eres de gracia el ...
+Por nuestras intenciones 
+Padre nuestro que estás en el cielo santificado sea tu nombre..
+Dios te salve maría llena eres de gracia el ...
 
-un credo al sagrado corazÃ³n de jesÃºs 
-el dios padre todopoderoso creador del cielo y de la tierra creo en jesucristo su Ãºnico hijo nuestro seÃ±or que fue
+Un credo al sagrado corazón de Jesús 
+Creo en Dios padre todopoderoso creador del cielo y de la tierra creo en jesucristo su único hijo nuestro señor que fue
 
-una salve al inmaculado corazÃ³n de marÃ­a
+Una salve al inmaculado corazón de María
 
-dios te salve reina y madre de misericordia de la dulzura y esperanza nuestra dios te salve aquÃ­ llamamos los desterrados hijos de evans andy suspiramos 500 llorando y en este valle de lÃ¡grimas era pues seÃ±ora abogada nuestra vuelve a nosotros esos tus ojos misericordiosos y despuÃ©s de este destierro muÃ©stranos a jesus fruto bendito de tu vientre supplement y sima obviados a dulce siempre virgen marÃ­a' ruega por nosotros santa madre de dios para que seamos dignos de alcanzar las promesas de nuestro seÃ±or jesucristo amÃ©n 
+Dios te salve reina y madre de misericordia, vida dulzura y esperanza nuestra Dios te salve. A ti clamamos los desterrados hijos de Eva a ti suspiramos gimiendo y llorando y en este valle de lágrimas. Ea pues señora abogada nuestra, vuelve a nosotros esos tus ojos misericordiosos y después de este destierro muéstranos a Jesus, fruto bendito de tu vientre. Oh clemente, oh piadosa, oh dulce siempre virgen María. Ruega por nosotros Santa Madre de Dios, para que seamos dignos de alcanzar las promesas de nuestro Señor Jesucristo. Amén 
 
 
-primer misterio la resurrecciÃ³n del seÃ±or 00:00:54
+Primer misterio GLORIOSO - la resurrecciÃ³n del seÃ±or 00:00:54
 
 The First Glorious Mystery
 THE RESURRECTION
