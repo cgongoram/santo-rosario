@@ -1,4 +1,4 @@
-# santo-rosario
+# SANTO ROSARIO
 ALABADOS SEAN JESUS Y MARIA
 SEAN POR SIEMPRE BENDITOS Y ALABADOS
 
@@ -19,9 +19,9 @@ que los perdonareis, por los méritos de vuestra preciosísima sangre, pasión y
 hasta el fin de mi vida.
 Amén.
 
-misterios gozosos del santo rosario
+Misterios gozosos del santo rosario
 
-primer misterio la encarnaciÃ³n del hijo de dios 00:00:53
+Primer misterio - La encarnación del Hijo de Dios - 00:00:53
 
 The First Joyful Mystery
 THE ANNUNCIATION
@@ -37,9 +37,9 @@ Mary answers: "Behold the handmaid of the Lord. Be it done unto me according to 
 The Word was made flesh and dwelt among us.
 Spiritual Fruit: Humility
 
-y el Ã¡ngel le dijo no temas marÃ­a porque has hallado gracia delante de dios conseguirÃ¡s en tu seno y darÃ¡s a luz un hijo y le pondrÃ¡s por nombre jesÃºs dijo entonces marÃ­a he aquÃ­ la esclava del seÃ±or hÃ¡gase en mÃ­ segÃºn tu palabra o madre con esa palabra fiel nos has hecho hermanos de dios y herederos de su gloria bendita seas en el seno de marÃ­a santÃ­sima habÃ­a para jesÃºs amor pureza adoraciÃ³n compaÃ±Ã­a respeto cuidado y cuando sale del sagrario que viene a mi miserable pecho nada de eso allÃ¡
+Y el Ángel le dijo no temas María porque has hallado gracia delante de Dios concebirás en tu seno y darás a luz un hijo y le pondrás por nombre Jesús. Dijo entonces María: he aquí la esclava del señor, hágase en mí según tu palabra. Oh madre, con esa palabra fiel nos has hecho hermanos de Dios y herederos de su gloria, bendita seas. En el seno de María santísima había para Jesús: amor, pureza, adoración, compañia, respeto, cuidado y cuando sale del sagrario que viene a mi miserable pecho nada de eso halló.
 
-segundo misterio la visitaciÃ³n de nuestra seÃ±ora a su prima santa isabel 00:06:05
+Segundo misterio. La visitación de nuestra señora a su prima Santa Isabel - 00:06:05
 
 The Second Joyful Mystery
 THE VISITATION
@@ -55,13 +55,13 @@ Mary replies: "My soul proclaims the greatness of the Lord, and my spirit finds 
 Mary serves her cousin in all humility for three months until the birth of John the Baptist.
 Spiritual Fruit: Love of Neighbor
 
-y en cuanto oyÃ³ el saludo de marÃ­a el niÃ±o saltÃ³ de gozo en su seno e isabel quedÃ³ llena del espÃ­ritu santo y exclamando en voz alta dijo vendida tÃº entre las mujeres y bendito el fruto de tu vientre de donde a mÃ­ tanto bien que venga la madre de mi seÃ±or a visitarme Ãºnete a la escena de la visitaciÃ³n canta con mariah su magnÃ­fica de acciÃ³n de gracias' da saltos de jÃºbilo con el niÃ±o profeta y adorar rendido el gran misterio de la encarnaciÃ³n del verbo ya que os disteis tanta prisa en visitar y santificar la casa de isabel visitar la casa de mi alma mejor que yo sabÃ©is lo pobre que es y como enferma se halla de tantos males
+Y en cuanto oyó el saludo de María el niño saltó de gozo en su seno e Isabel quedó llena del Espíritu Santo y exclamando en voz alta dijo: bendida tú entre las mujeres y bendito el fruto de tu vientre. De donde a mí tanto bien que venga la madre de mi señor a visitarme. Únete a la escena de la visitación, canta con Maria su magníficat de acción de gracias. Da saltos de júbilo con el niño profeta y adora rendido el gran misterio de la encarnación del verbo. Ya que os disteis tanta prisa en visitar y santificar la casa de Isabel, visita la casa de mi alma, mejor que yo sabéis lo pobre que es y como enferma se halla de tantos males.
 
-marÃ­a madre de grÃ cia madre de ciudad y misericordia defiende nos del enemigo y ampara nos ahora y en la hora de nuestra muerte amÃ©n
+María, madre de gracia, madre de piedad y misericordia, defiendenos del enemigo y amparanos ahora y en la hora de nuestra muerte amén.
 
-jesÃºs mÃ­o perdona nuestros pecados lÃ­branos del fuego del infierno llevada al cielo a todas las almas especialmente a las mÃ¡s necesitadas de vuestra misericordia
+Oh Jesús mío, perdona nuestros pecados, líbranos del fuego del infierno, lleva al cielo a todas las almas, especialmente a las más necesitadas de vuestra misericordia.
 
-tercer misterio el nacimiento del hijo de dios en el portal de belÃ©n 00:11:11
+Tercer misterio, el nacimiento del Hijo de Dios en el portal de belén - 00:11:11
 
 The Third Joyful Mystery
 THE NATIVITY
@@ -77,14 +77,13 @@ The shepherds come to the stable to pay homage to the Infant Jesus.
 The Magi come to adore the Holy Child and offer Him gifts.
 Spiritual Fruit: Poverty of Spirit
 
-y sucediÃ³ que estando en belÃ©n le llegÃ³ la hora del parto y dio a luz a su hijo primogÃ©nito lo envolviÃ³ en paÃ±ales y lo recostÃ³ en un pesebre porque no habÃ­a lugar para ellos en la posada o marÃ­a la mÃ¡s dichosa de las madres y la mÃ¡s pura de las vÃ­rgenes prestarme vuestro corazÃ³n amante para amar a este divino niÃ±o que adoro en vuestros brazos y a quien quiero asemejar me ha a toda costa el niÃ±o jesÃºs viene a este mundo en tu buscar ofrece tÃ© desde ahora como su pequeÃ±a oveja no quieras otro pastor
+Y sucedió que estando en Belén le llegó la hora del parto y dio a luz a su hijo primogénito, lo envolvió en pañales y lo recostó en un pesebre porque no había lugar para ellos en la posada. Oh María, la más dichosa de las madres y la más pura de las vírgenes, prestame vuestro corazón amante para amar a este divino niño que adoro en vuestros brazos y a quien quiero asemejar me a toda costa, el niño Jesús viene a este mundo en tu buscar. Ofrecete desde ahora como su pequeña oveja, no quieras otro pastor.
 
-marÃ­a madre de grÃ cia madre de ciudad y misericordia defiende nos del enemigo y ampara nos ahora y en la hora de nuestra muerte amÃ©n
+María, madre de gracia, madre de piedad y misericordia, defiendenos del enemigo y amparanos ahora y en la hora de nuestra muerte, amén.
 
-jesÃºs mÃ­o perdona nuestros pecados lÃ­branos del fuego del infierno llevada al cielo a todas las almas especialmente a las mÃ¡s necesitadas de vuestra misericordia
+Oh Jesús mío, perdona nuestros pecados, líbranos del fuego del infierno, lleva al cielo a todas las almas, especialmente a las más necesitadas de vuestra misericordia.
 
-
-cuarto misterio la presentaciÃ³n del niÃ±o jesÃºs en el templo y la purificaciÃ³n de su santÃ­sima madre 00:16:16
+Cuarto misterio, la presentación del niño Jesús en el templo y la purificación de su santísima madre - 00:16:16
 
 The Fourth Joyful Mystery
 THE PRESENTATION
@@ -100,9 +99,9 @@ And to Mary Simeon reveals: "And your own soul a sword shall pierce."
 After they fulfill all the Law requires they return to Nazareth.
 Spiritual Fruit: Purity of mind and body
 
-y cumplidos los dÃ­as de la purificaciÃ³n llevaron a jesÃºs a jerusalÃ©n para presentarlo al seÃ±or y para presentar como ofrenda un par de tÃ³rtolas o dos pichones segÃºn lo mandado por la ley del seÃ±or mariah lleva en sus brazos a un tierno niÃ±o flor y fruto de su pureza virginal para ofrecerlo al seÃ±or como vÃ­ctima de sacrificio y es que ese hijo de marÃ­a es tambiÃ©n el hijo del altÃ­simo que debe ser inmolado para la redenciÃ³n de nuestros pecados ofrezca monos tambiÃ©n nosotros a dios en rendido homenaje a su divina majestad mÃ¡s hagÃ¡moslo por medio de jesucristo y estÃ© en brazos de su madre como el dÃ­a de la presentaciÃ³n
+Y cumplidos los días de la purificación, llevaron a Jesús a Jerusalén para presentarlo al señor y para presentar como ofrenda un par de tórtolas o dos pichones según lo mandado por la ley del señor. Maria lleva en sus brazos a un tierno niño, flor y fruto de su pureza virginal para ofrecerlo al señor como víctima de sacrificio y es que ese hijo de María es también el hijo del altísimo que debe ser inmolado para la redención de nuestros pecados. Ofrezcamonos también nosotros a Dios en rendido homenaje a su divina majestad, más hagámoslo por medio de Jesucristo y esté en brazos de su madre como el día de la presentación.
 
-quinto misterio el niÃ±o jesÃºs perdido y hallado en el templo 00:21:18
+Quinto misterio, el niño Jesús perdido y hallado en el templo - 00:21:18
 
 The Fifth Joyful Mystery
 THE FINDING OF JESUS IN THE TEMPLE
@@ -118,7 +117,7 @@ Jesus goes down with them to Nazareth, and is subject to them.
 Mary keeps all these things in her heart.
 Spiritual Fruit: Obedience
 
-cuando tuvo 12 aÃ±os subieron a la fiesta como era costumbre pasados aquellos dÃ­as al regresar el niÃ±o jesÃºs' se quedÃ³ en jerusalÃ©n sin que lo advirtieran sus padres y ocurriÃ³ que al cabo de tres dÃ­as lo encontraron en el templo sentado en medio de los doctores escuchÃ¡ndolos y preguntÃ¡ndoles el seÃ±or envÃ­a o permite a veces abandonos y oscuridades medios y cansancios que lo ocultan a las miradas del alma para mantenernos en humildad hacernos adquirir mÃ©ritos consolidar nuestra virtud formarnos en la paciencia y conformidad con la voluntad divina o para que lo busquemos con afÃ¡n aunque uno posea todos los bienes del mundo si ha perdido a dios todas las cosas de la tierra se le han convertido en humo y vanidad
+Cuando tuvo 12 años subieron a la fiesta como era costumbre pasados aquellos días al regresar el niño Jesús se quedó en Jerusalén sin que lo advirtieran sus padres y ocurrió que al cabo de tres días lo encontraron en el templo sentado en medio de los doctores, escuchándolos y preguntándoles. El señor envía o permite a veces abandonos y oscuridades miedos y cansancios que lo ocultan a las miradas del alma para mantenernos en humildad hacernos adquirir méritos, consolidar nuestra virtud, formarnos en la paciencia y conformidad con la voluntad divina o para que lo busquemos con afán aunque uno posea todos los bienes del mundo si ha perdido a Dios todas las cosas de la tierra se le han convertido en humo y vanidad.
 
 
 primer misterio DOLOROSO la oraciÃ³n del seÃ±or en el huerto 00:00:55
