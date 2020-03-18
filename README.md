@@ -3,9 +3,11 @@ ALABADOS SEAN JESUS Y MARIA
 SEAN POR SIEMPRE BENDITOS Y ALABADOS
 
 https://jsfiddle.net/7h89y55r/
+
 https://stackoverflow.com/questions/39378020/how-to-display-table-in-readme-md-file-in-github
 https://help.github.com/enterprise/11.10.340/user/articles/github-flavored-markdown
 https://help.github.com/enterprise/11.10.340/user/articles/writing-on-github
+
 <table>
     <thead>
         <tr>
